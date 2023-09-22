@@ -1,1 +1,1 @@
-## Lets make some powerfull poses
+## Lets make some powerful poses
